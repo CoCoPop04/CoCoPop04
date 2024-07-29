@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CoCoPop04
 - 👀 I’m interested in reading/writing
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning coding (very beginner)
 - 😄 Pronouns: she/her
 
 
